@@ -1,7 +1,9 @@
 Members:
-Johndulf Mendiola
-Daryll Eunice Tabar
-Loreen Kaye Gabo
-Franklin Pepkin Redido  
-Elgrids Ventura Mendez 
-Cyrylle Sanchez
+Jose Jeff Jumao-as
+James Micheal Guevarra
+Kiven Kieth Casquejo
+Jelmero Abaño  
+Glen Ranido
+John Karl Oyao
+Joemari Canada
+Axel Fuentes
